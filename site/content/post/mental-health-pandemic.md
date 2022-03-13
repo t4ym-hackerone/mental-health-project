@@ -1,5 +1,5 @@
 ---
-title: 'Understanding and Management of Situational Depression'
+title: 'Understanding and Management of Depression during pandemic'
 date: 2017-01-04T15:04:10.000Z
 description: >-Our awful life occasions frequently trigger sensations of trouble, depression, and sorrow.
 ---
