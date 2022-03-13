@@ -3,13 +3,12 @@ title: 'Understanding and Management of Depression during pandemic'
 date: 2017-01-04T15:04:10.000Z
 description: >-Our awful life occasions frequently trigger sensations of trouble, depression, and sorrow.
 ---
-<img src="https://depressionals.com/wp-content/uploads/2021/12/COVID-19-and-your-mental-health.webp" align=center/>
 
 A considerable lot of us have been feeling the squeeze since the Covid pandemic started. Assuming you've ended up battling to focus on an errand, or experiencing issues recollecting a particular word or where you left your keys, you may be encountering the psychological haze known as "pandemic mind"- and you're in good company.
 
 "It's this mental debilitation that the entire world has been going through in light of the fact that it's set off by things like pressure," said Jeni Stolow, a social and conduct researcher and partner teacher of guidance at the College of Public Health. "A few of us had major distressing occasions occur, yet we likewise have these miniature stressors happening persistently."
 
-The pandemic disturbed our regular routines and exposed us to long stretches of uneasiness and vulnerability. You are all made changes to adjust <a href="https://depressionals.com/covid-19-and-your-mental-health/">COVID-19 and Your Mental Health</a>. Pandemic brain is really your mind adjusting to your new circumstance the most effective way it can," Stolow said. "Sadly, on the grounds that we went from being truly unique and moving around and collaborating with individuals to finish closure, it appears as feeling unresponsive, drained or discouraged."
+The pandemic disturbed our regular routines and exposed us to long stretches of uneasiness and vulnerability. You are all made changes to adjust [COVID-19 and Your Mental Health](https://depressionals.com/covid-19-and-your-mental-health/). Pandemic brain is really your mind adjusting to your new circumstance the most effective way it can," Stolow said. "Sadly, on the grounds that we went from being truly unique and moving around and collaborating with individuals to finish closure, it appears as feeling unresponsive, drained or discouraged."
 
 Normal side effects additionally incorporate carelessness and an absence of concentration. "That ungainliness you feel, yet in addition a feeling of being new to the real world," Stolow said. "I figure individuals may be feeling a little senseless at this moment. They're thinking, 'I failed to remember how to siphon gas? I failed to remember how to associate with outsiders on the metro?'"
 
