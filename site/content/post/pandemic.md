@@ -3,7 +3,7 @@ title: 'Understanding and Management of Situational Depression'
 date: 2017-01-04T15:04:10.000Z
 description: >-Our awful life occasions frequently trigger sensations of trouble, depression, and sorrow.
 ---
-<img src="https://i0.wp.com/depressionals.com/wp-content/uploads/2021/12/Situational-Depression.webp?w=800&ssl=1"/ align=center>
+<img src="https://i0.wp.com/depressionals.com/wp-content/uploads/2021/12/Situational-Depression.webp" align=center/>
 The occasions in our lives trigger our feelings. While we realize that life will infrequently toss agonizing encounters toward us, we actually feel caught off guard for the inner disturbance. Regularly, our sentiments overpower us and assess our capacity to adapt to the progressions in our lives.
 
 Our awful life occasions frequently trigger sensations of trouble, depression, and sorrow. This is typical. It's essential for the human experience. Regularly, these sentiments die down when the distressing circumstance improves, or we figure out how to adjust to the effect and the progressions they make.
